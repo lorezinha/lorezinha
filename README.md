@@ -1,0 +1,8 @@
+- # sobre mim 
+- hellouuu meu nome é loren de lima 
+- tenho 15 anos faço aniversario 14/08 
+- eu adoro dança gaúcha minha paixão :heart_eyes:
+- atualmemte estou estudando na escola civico militar presidente vargas eu gosto muito daqui mesmo sendo militar com tantas regras 😣
+- muitos me perguntam se eu tenho um sonho impossivel de realizar,concerteza para mim é termina um livro :sleeping:
+- esse ano entrei no ensino medio uma coisa que nunca pensei que ia consigui
+- eu sou uma menina alegre, amiga de todos, e me acho muito 
